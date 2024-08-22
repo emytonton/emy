@@ -1,1 +1,2 @@
-"satanas"
+"amo minha mae"
+"amo ela" 
